@@ -6,7 +6,7 @@ Olá! Bem vindo ao meu livro de receitas :cake:
 
 - Pavê de Morango com Leite Ninho.
 
-- Pudim de Leite Condensado;
+- Pudim de Leite Condensado.
 
   
 
