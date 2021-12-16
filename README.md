@@ -2,9 +2,9 @@
 
 Olá! Bem vindo ao meu livro de receitas :cake:
 
-- Estrogonofe de Frango;
+- Estrogonofe de Frango.
 
-- Pavê de Morango com Leite Ninho;
+- Pavê de Morango com Leite Ninho.
 
   
 
